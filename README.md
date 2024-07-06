@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Qhele23
+- 👋 Hi, I’m @qwibbler
 - 👀 I’m interested in Gaming
-- 🌱 I’m currently learning form 4
+- 🌱 I’m currently learning in highschool
 - 💞️ I’m looking to collaborate on gaming 
 
 <!---
